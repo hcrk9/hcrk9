@@ -1,3 +1,3 @@
 ## Hi, this is hachi.
-A person interested in ***rhythm games, BlueArchive & typography*** <br>
-Have been playing CHUNITHM & WACCA recently.
+A person interested in ***rhythm games, BlueArchive, typography & design in general.*** <br>
+Have been playing CHUNITHM, Sound Voltex & Project Sekai recently.
